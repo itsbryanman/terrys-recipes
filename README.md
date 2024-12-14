@@ -1,4 +1,3 @@
-Um, let’s just sprinkle a little more sugar on top, you know?
 
 # Terry's Recipes (A Sweeter Touch)
 
